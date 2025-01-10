@@ -1,6 +1,5 @@
 # Blooket Hacks
 
-Welcome
 
 Triple Tap the code below and then drag it to your bookmark bar. Click the bookmark to activate it.
 
